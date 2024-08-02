@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @MeLikeCats
 - 👀 I’m interested in ... the things im interested in
-- 🌱 I’m currently learning ... to learn
+- 🌱 I’m currently learning ... how to learn
 - 💞️ I’m looking to collaborate on ... nowhere
-- 📫 How to reach me ... you can't
+- 📫 How to reach me ... you cant
 - 😄 Pronouns: ... ban/ana
 - ⚡ Fun fact: ... the opposite of fun is boredom
 
