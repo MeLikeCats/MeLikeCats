@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... nowhere
 - 📫 How to reach me ... you can't
 - 😄 Pronouns: ... ban/ana
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ... the opposite of fun is boredom
 
 <!---
 MeLikeCats/MeLikeCats is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
